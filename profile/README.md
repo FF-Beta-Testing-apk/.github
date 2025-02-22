@@ -4,7 +4,7 @@
 ## What is FF Beta Testing APK?
 The **FF Beta Testing APK**, also known as the Free Fire Advance Server, is an exclusive testing platform by Garena. It allows selected players to access upcoming Free Fire features before the official release. This early access helps Garena refine updates based on user feedback, ensuring a smoother experience for the wider player base.
 
-# Download: 👉👉 https://modhello.com/ 👈👈
+# Download: 👉👉 https://modhello.com/ff-beta-testing/ 👈👈
 
 ![maxresdefault (4)](https://github.com/user-attachments/assets/fee67d87-1aa2-4607-909e-137c8c9c25ac)
 
